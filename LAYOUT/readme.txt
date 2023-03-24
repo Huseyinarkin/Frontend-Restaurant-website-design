@@ -1,1 +1,0 @@
-182119009 Hüseyin ARKIN
